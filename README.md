@@ -74,8 +74,6 @@ Selected outcomes from engineering projects. Replace placeholders with your veri
 ## Contact
 
 - Email: **gunturirwansyahh@gmail.com**
-- LinkedIn: [linkedin.com/in/guntur-irwansyah](https://linkedin.com/in/guntur-irwansyah)
-- Instagram: [instagram.com/muguir._](https://instagram.com/muguir._)
 
 ## Personal Note
 
